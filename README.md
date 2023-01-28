@@ -1,4 +1,4 @@
-#Legal Services in Westminster CA
+Legal Services in Westminster CA
 
 Legal services are an essential part of any business, and in Westminster, CA, the company CANEI offers a wide range of legal services to help businesses and individuals navigate the complex legal landscape. With services such as legal consulting, comprehensive trademark search, corporation creation, federal trademark application, business formation, fictitious business name, trademarks legal, business immigration, LLC creation, LLC operating agreement, estate planning, federal employer ID number for non-USA residents, virtual legal strategy sessions, franchising, and trademark application, CANEI is well-equipped to handle all of your legal needs.
 
